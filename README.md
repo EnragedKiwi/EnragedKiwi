@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @EnragedKiwi
+- 👀 I’m interested in Bugs
+- 🌱 I’m currently learning about Bugs
+- 💞️ I’m looking to collaborate on making Bugs
+- 📫 How to reach me ... Bug me
